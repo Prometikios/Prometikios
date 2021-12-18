@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Mehmet as @Prometikios
+- 👀 I’m interested in everything ı guess. Filming, programing, writing some stories or similar things, dances, Games, different genres of music.
+- 🌱 I’m currently learning program, some dances and ı tried some languages german and norweigan
+- speak as native turkish and english. 
+- 📫 You can reach me with meh.goktug.as@gmail.com or discord=> okey boomer #5716
